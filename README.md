@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ArimaTheH
+- 👀 I’m interested in C/C#
+- 🌱 I’m currently learning Cyber Security
+- 📫 How to reach me in Discord : ArimaDev
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: </nothing>
